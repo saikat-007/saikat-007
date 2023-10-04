@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **saikatbanerjee124@gmail.com**
 
-- 📄 My resume [https://drive.google.com/file/d/1L0rpjdQrxugTLldM0nHvRhLmH1D_5JQH/view?usp=sharing](https://drive.google.com/file/d/1L0rpjdQrxugTLldM0nHvRhLmH1D_5JQH/view?usp=sharing)
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
